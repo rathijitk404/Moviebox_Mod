@@ -21,4 +21,4 @@ A patch version of MovieBox..
 
 ## Connect with the Modder
 * 📸 **Instagram:** [@rathijitk_zero](https://www.instagram.com/rathijitk_zero)
-* ✈️ **Telegram:** *(Paste your Telegram link here if you have one)*
+* ✈️ **Telegram:** *https://t.me/Rathijitk_PATCH*
